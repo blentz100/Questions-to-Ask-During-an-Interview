@@ -20,7 +20,7 @@ Are there any questions I haven’t asked that I should ask?
 
 Is there any more information I can share with you that would convince you that I’m the best person for this role?
 
-Add about 10 more questions specific to the company itself.
+Add about 10 more questions specific to the company itself. Come up with your questions by researching them on google news, social media, glassdoor, podcasts, crunchbase, their own careers page, LinkedIn, etc.
 
 After the interview, instead of sending a thank you note, send a note summarizing your understanding of the answer to all these questions. 
 Ask the interiewer to confirm that you heard the answers correctly and then restate that you are still interested in the role and give one or 
